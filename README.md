@@ -1,5 +1,6 @@
 # 💫 About Me:
-I'm unemployed, help me. :(
+🔭 I’m currently working as a freelance teacher inspiring our future generation, creating sparks.
+🤝 I’m looking to further my studies, to create a safer and smarter nation.
 
 
 ## 🌐 Socials:
